@@ -14,7 +14,7 @@ Berikut ini adalah Koleksi yang dimiliki:
 6. [Odeng Pintar](ebook/Odeng Pintar.pdf) – Hasan Al Banna (2025)
 7. [Bahasa Jawaku](ebook/Bahasa Jawaku.pdf) – Wenny Oktavia (2026)
 8. [Resep Rahasia Mida](ebook/Resep Rahasia Mida.pdf) – Fajriatun Nurhidayati (2026)
-9. [Mi Panjang Umur Cerita dalam Sentuhan](ebook/Mi Panjang Umur Cerita dalam Sentuhan.pdf) – Weni Rahayu (2026)
+9. [Mimpi Loni](ebook/Mimpi Loni.pdf) – Teti Umarih (2026)
 10. [Persyaratan & Fasilitas Ruang](ebook/Persyaratan & Fasilitas Ruang.pdf) – Departemen Pendidikan dan Kebudayaan RI Direktorat Jenderal Pendidikan Tinggi (1994)
 11. [RINGKASAN UGC PATI](ebook/RINGKASAN UGC PATI.pdf) – Bening Putri Maharani (2026)
 
